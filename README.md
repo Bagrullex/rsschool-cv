@@ -1,1 +1,1 @@
-https://Bagrullex.github.io/rsschool-cv/cv
+https://bagrullex.github.io/rsschool-cv/
