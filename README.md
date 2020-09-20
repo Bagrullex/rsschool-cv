@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Bagrullex.github.io/rsschool-cv/cv
